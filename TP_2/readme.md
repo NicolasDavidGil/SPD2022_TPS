@@ -1,6 +1,7 @@
       Trabajo Práctico N°2: Ahorcado
 
       https://www.tinkercad.com/things/1MHWStwmFur
+      https://www.tinkercad.com/things/1MHWStwmFur-tpspd2/editel
 
       Nombre del grupo:
       
